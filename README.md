@@ -1,5 +1,5 @@
 # softwar-ru
-Программная война: новая теория проецирования власти и национальная важнасть Биткоин (ПЕРЕВОД НА РУССКИЙ)
+Программная война: новая теория проецирования власти и национальная стратегическая важность Биткоин (ПЕРЕВОД НА РУССКИЙ)
 Оригинал: Softwar: Novel theory of power projection and national significance of Bitcoin by Jason Paul Lowery
 (https://www.amazon.com/Softwar-Projection-National-Strategic-Significance/dp/B0BW358F37)
 
